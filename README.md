@@ -1,0 +1,2 @@
+# Hello_Deddnatorr
+Trading
